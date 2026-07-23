@@ -1,1 +1,1 @@
-contact ~ [telegram](https://telegram.me/enshermanking)
+contact ~ [telegram](https://telegram.me/enshermanking) for commercial work
